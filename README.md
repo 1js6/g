@@ -1,6 +1,8 @@
 # Tải Shadow Fight 2 MOD APK (Vô Hạn Tiền, Max Level 999, Titan, VIP) 2.38.1
 Shadow Fight 2 là sự kết hợp hấp dẫn giữa game nhập vai và chiến đấu cổ điển. Trò chơi này cho phép bạn trang bị cho nhân vật của mình vô số vũ khí sát thương và bộ áo giáp quý hiếm, đồng thời có hàng tá kỹ thuật Võ thuật hoạt hình sống động như thật! Đè bẹp kẻ thù của bạn, hạ nhục những tên trùm quỷ và trở thành người đóng Cánh cổng Bóng tối. Bạn có đủ khả năng đá, đấm, nhảy và chém để giành chiến thắng.
 
+Link tải nhanh:  [**DOWNLOAD**](https://phanmemnet.com/tai-shadow-fight-2-mod-apk-vo-han-tien-max-level-999-titan-vip-2-37-0/)
+
 Shadow Fight 2 có lối chơi khá đơn giản, tuy nhiên những trận đấu được diễn ra hết sức chân thật, các hiệu ứng đầu tư hoành tráng. Và người chơi có thể dễ dàng di chuyển thông qua các nút ở bên trái màn hình, kết hợp với các nút kỹ năng ở góc bên phải để thực hiện những hành động tấn công hoặc phòng thủ đối phương.
 
 ![image](https://github.com/user-attachments/assets/a670f8ea-82f7-40e1-85eb-56d16f1406ac)
